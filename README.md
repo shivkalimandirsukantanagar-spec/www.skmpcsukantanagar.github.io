@@ -1,1 +1,0 @@
-# www.skmpcsukantanagar.github.io
